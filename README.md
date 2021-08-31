@@ -1,3 +1,3 @@
-### Hey, sup? 👋
+### Hey, sup?
 
 heysafronov@gmail.com
