@@ -1,3 +1,3 @@
-### Lead front-end developer
+### Lead Front-end Developer
 
 heysafronov@gmail.com
